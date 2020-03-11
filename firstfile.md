@@ -1,0 +1,3 @@
+cho za dela
+aaaaa... aaaaa... aaaaa...
+#prosto vse zamenil, sluchayno
