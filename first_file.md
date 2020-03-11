@@ -1,4 +1,7 @@
 cho za dela
+
+vasya kupi slona
+
 aaaaa... aaaaa... aaaaa...
 #prosto vse zamenil, sluchayno
 
